@@ -1,0 +1,1 @@
+# Yoqilg-i-quyish-shaxobchasi-ma-lumotlar-bazasini-yaratish
